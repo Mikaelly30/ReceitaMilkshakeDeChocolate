@@ -1,0 +1,1 @@
+Modo de Preparo---> Coloque o leite gelado, o chocolate em pó e as bolas de sorvete no liquidificador e ata por 30 segundos. Sirva em copos e decore com a cobertura.
